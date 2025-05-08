@@ -1,1 +1,0 @@
-# Dapoer-Putu
